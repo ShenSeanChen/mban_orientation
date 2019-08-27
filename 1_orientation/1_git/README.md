@@ -1,1 +1,2 @@
-# YOUR NAME HERE
+# Shen Sean Chen
+# Yo wus'up mate?
